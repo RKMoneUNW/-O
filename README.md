@@ -1,5 +1,4 @@
-# -O
-适用于
+# 适用于
 
 安卓8.0及以上
 
@@ -9,13 +8,13 @@ IOS11.0及以上
 
 鸿蒙 /ʜ12.0及以上
 
-如何唤醒谷歌助理：
+# 如何唤醒谷歌助理：
 
 Dropbox共享文件(简汉)▼
 
 https://www.dropbox.com/scl/fo/8sxewv58fp7bdnmfnbxex/AE2kH6YY5Bzql84JX3OptYQ?rlkey=bmggqjnmfo21p9rmfq7hqgdq7&e=1&st=ef1nu6ml&dl=0
 
-提供者前阅：
+# 提供者前阅：
 
 感谢提供，以下是可能会需要获取的信息：
 
