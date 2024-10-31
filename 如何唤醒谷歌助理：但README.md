@@ -12,7 +12,7 @@ IOS 11.0及以上
 
 Dropbox共享文件(简汉)▼
 
-https://www.dropbox.com/scl/fo/8sxewv58fp7bdnmfnbxex/AE2kH6YY5Bzql84JX3OptYQ?rlkey=bmggqjnmfo21p9rmfq7hqgdq7&e=1&st=ef1nu6ml&dl=0
+https://www.dropbox.com/scl/fo/ejtml8jbpv6wx6b9g1nd2/AI_xOkNG6bflzOl0RqxkScw?rlkey=eoxj5x8mdu7p1w2mp8q11faa7&st=ga3nkm1n&dl=0
 
 # 提供者前阅：
 
