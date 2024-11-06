@@ -3,6 +3,8 @@
 这篇文件里存放的是一篇文章，它会指导你如何唤醒谷歌助理之类的操作。文章中的文字含有超链接，这可能是无障碍无法识别的，如果你要使用这些超链接，那么需要一个人进行辅助。
 超链接及其中的内容可能导致光敏性癫痫，或者可能会触发一些疾病。
 
+[人人丨https://www.dropbox.com/scl/fo/ejtml8jbpv6wx6b9g1nd2/AI_xOkNG6bflzOl0RqxkScw?rlkey=eoxj5x8mdu7p1w2mp8q11faa7&st=ga3nkm1n&dl=0]
+
 # 适用于
 
 安卓 8.0及以上
