@@ -34,15 +34,15 @@ IOS 16.0及以上(迷你谷歌)
  
 # 《如何唤醒谷歌助理：》
 
-国际链接(可下载可预览)▼ 
+世界链接(可下载可预览)▼ 
 
 Dropbox共享文件(简汉-晋/秦语语系)▼
 https://www.dropbox.com/scl/fo/ejtml8jbpv6wx6b9g1nd2/AI_xOkNG6bflzOl0RqxkScw?rlkey=eoxj5x8mdu7p1w2mp8q11faa7&st=ga3nkm1n&dl=0
 
-国内链接(可下载可预览)▼ 
+中国链接(可下载可预览)▼ 
 
 腾讯微云(仅限七天-简汉-晋/秦语语系)▼ 
-https://share.weiyun.com/K7qykGSk
+https://share.weiyun.com/PEMB68nf
 
 
 # 提供者前阅：
