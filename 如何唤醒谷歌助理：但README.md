@@ -42,12 +42,12 @@ https://www.dropbox.com/scl/fo/ejtml8jbpv6wx6b9g1nd2/AI_xOkNG6bflzOl0RqxkScw?rlk
 中国链接(可下载可预览)▼ 
 
 腾讯微云(仅限七天-简汉-晋/秦语语系)▼ 
-https://share.weiyun.com/PEMB68nf
+https://share.weiyun.com/gxdZGMKh
 
 
 # 提供者前阅：
 
-目前已停止收集信息，预计乙巳年正月十五(2025年2月12日)开始收集、整合信息，届时 条款可能更改；
+目前已停止滴下来(滴下来：晋语语系；集、均、摊、整、平均计算之意)，预计乙巳年正月十五(2025年2月12日)开始滴下来，届时条款可能更改；
 
 感谢提供，以下是可能会需要获取的信息：
 
